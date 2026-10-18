@@ -7,7 +7,7 @@
 
 
 
-[<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/b72b6ed1-6409-43b8-b51b-53df384b8621" />](https://media.discordapp.net/attachments/1097523843419078666/1550883089901682698/20260913170833.png?ex=6ad586ae&is=6ad4352e&hm=5c17266b21c2cfa95a72847b07f7d50ab7db701f1d0a1a5efd6211ce4cd96b4b&=&format=webp&quality=lossless&width=1536&height=1152)
+https://64.media.tumblr.com/18d6cb3c406126a1c7a8669a0fc863d9/4fb302b4e9faa168-32/s2048x3072/d34e0d172ac8e54a9191712099bc0b800b85a4cf.pnj
 
 
 
